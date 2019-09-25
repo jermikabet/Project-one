@@ -46,3 +46,14 @@ This video bellow shows [how to hollow out a potato](https://www.bing.com/videos
 5.) Smash the potatoes into the butter, bacon and sour cream. Add the cheese, milk, seasoned salt, green onions and black pepper to taste and mix together well. (**IMPORTANT: If you plan to freeze the twice-baked potatoes, do NOT add the green onions.**)
 
 6.) Fill the potato shells with the filling. I like to fill the shells so they look abundant and heaping. Top each potato with a little more grated cheese and pop 'em in the oven until the potato is warmed through, 15 to 20 minutes.
+
+# Foot Notes
+
+* > Before putting the potatoes in the oven stab them with a frok multiple times on both side **if not  they will explode**
+* > Reynolds® Aluminum foil can be used to keep food moist, cook it evenly, and make clean-up easier.
+
+# Examples of Recipes
+
+* [Ultimate Twice Baked Potatoes](https://www.allrecipes.com/recipe/24332/ultimate-twice-baked-potatoes/?internalSource=hub%20recipe&referringContentType=Search)
+
+* [Twice-Baked Potatoes](https://www.foodnetwork.com/recipes/ree-drummond/twice-baked-potatoes-recipe-1925596)
