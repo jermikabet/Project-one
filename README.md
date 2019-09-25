@@ -11,9 +11,9 @@
 
 ## Ingredients
 
-1. 4 [Large Russet Potatoes](https://www.walmart.com/ip/Russet-Baking-Potatoes-each/44391004) : $0.55
+1. 4 [Large Russet Potatoes](https://www.walmart.com/ip/Russet-Baking-Potatoes-each/44391004) : $0.55 each
 
-2. 8 [slices of bacon](https://www.walmart.com/ip/Great-Value-Original-Hickory-Smoked-Bacon-12-Oz/23816525) : $3.73
+2. 8 [slices of bacon](https://www.walmart.com/ip/Great-Value-Original-Hickory-Smoked-Bacon-12-Oz/23816525) : $0.46
 
 3. 1 [cup sour cream](https://grocery.walmart.com/ip/Daisy-Sour-Cream-3-lb/15754292) : $4.26
 
@@ -29,5 +29,9 @@
 
 9. 8 [green onions](https://grocery.walmart.com/ip/Freshness-Guaranteed-Chopped-Green-Onions-4-oz/15556486) : $2.58
 
-Total cost = 
+Total cost = $25.83
+
+## Directions 
+
+
 
